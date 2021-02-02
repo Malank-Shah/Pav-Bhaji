@@ -1,11 +1,13 @@
+Pav Bhaji
+
 My favorite dish is Pav Bhaji
- which is a fast food dish from India consisting of a thick vegetable curry served with a soft bread roll.
+ which is a fast food dish from India consisting of a mashed vegetable curry served with a soft bread roll.
  Vegetables in the curry may include potatoes, onions, carrots, chillies, peas, bell peppers, and tomatoes. Its origins are in the state of Maharashtra.
   Variants of the dish may use other bread varieties such as chapati , roti or brown bread.
   
   Ingredients
   
-  ½ cup vegetable oil
+1\2 cup vegetable oil
 2 teaspoons chopped garlic
 1 teaspoon finely chopped green chile peppers
 1 cup chopped onions
